@@ -1,0 +1,7 @@
+- 👋 Hi, We are @HeaveNeural
+- 👀 We are interested in IA and Data Science
+- 🌱 We are currently learning on AI again
+- 💞️ We are looking to collaborate on AI
+- 📫 How to reach us ... Don't for the moment, We are coding AI.
+- 😄 Pronouns: AI
+- ⚡ Fun fact: IA
